@@ -118,8 +118,8 @@ Bu Gizlilik Politikası zaman zaman güncellenebilir. Önemli değişiklikler ya
 
 Gizlilik politikamız hakkında sorularınız, endişeleriniz veya taleplerini iletmek için lütfen bizimle iletişime geçin:
 
-**E-posta**: [destek@katkatyonetim.com](mailto:destek@katkatyonetim.com)  
-**Adres**: [Şirket Adresi]
+**E-posta**: [ismozzy.dev@gmail.com](mailto:ismozzy.dev@gmail.com)  
+**Adres**: [[DataClinic](https://dataclinicweb.com/)]
 
 ## 13. Yasal Uygunluk
 
